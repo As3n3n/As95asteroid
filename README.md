@@ -20,4 +20,4 @@ But I'm not good at English, so I don't know that either.
 
 Twitter|[@As95asteroid](https://twitter.com/As95asteroid)
 --|--
-Discord|アース*95#3422<br>アース*95#2632
+Discord|as39
